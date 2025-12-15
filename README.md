@@ -1,1 +1,1 @@
-# ychi100.ru
+# ychi100.githab.io
